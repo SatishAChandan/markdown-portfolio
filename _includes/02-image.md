@@ -1,1 +1,1 @@
-![Image of Satish Chandan](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftwitter.com%2FSatishChandan16&psig=AOvVaw08Le5Z8NqPxVlMp05vYoCH&ust=1602509122595000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCIjsi-nRrOwCFQAAAAAdAAAAABAD)
+![Image of Satish Chandan](https://pbs.twimg.com/profile_images/982323646092988417/gGqQ4DTm_400x400.jpg)
